@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @preeti0909
+- 👋 Hi, I’m Preeti Yadav
 - 👀 I’m interested in HR domain
 - 🌱 I’m currently learning about HRSS.
 - 💞️ I’m looking to collaborate on HR consultant.
